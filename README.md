@@ -107,3 +107,4 @@ Pretty Github : <a href="https://github.com/pastellcloudyy"> @pastellcloudyy </a
   <br>
 <a href="https://github.com/Coinsflips"> @Coinsflips </a>: is ponytowns Chance (Forsaken) ! ݁ ˖Ი𐑼⋆ <br>
   <br>
+<a href="https://github.com/luckigraft"> @luckigraft </a>: is ponytowns hummer5718 (the search for the leviathan) & dusekkar (Forsaken) ! ݁ ˖Ი𐑼⋆ <br>
