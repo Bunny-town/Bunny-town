@@ -52,19 +52,19 @@ If you change your username you can ask to change it in the ATA! please mention 
 <br>
 <br>
 <div align="left">
-Known Ponies (150+ Follows) : 
+Known Ponies (150+ Follows) : <a href="https://github.com/viimsey"> @viimsey </a>, <a href="https://github.com/star-employee"> @star-employee </a>,
 <br>
 <br>
-Top AFK : 
+Top AFK : <a href="https://github.com/pastellcloudyy"> @pastellcloudyy </a>,
 <br>
 <br>
-Cuddliest Ponies : 
+Cuddliest Ponies : <a href="https://github.com/viimsey"> @viimsey </a>, <a href="https://github.com/star-employee"> @star-employee </a>,
 <br>
 <br>
-Pretty Github : 
+Pretty Github : <a href="https://github.com/pastellcloudyy"> @pastellcloudyy </a>,
 <br>
 <br>
-#1/Biggest Fan of Fandom : 
+#1/Biggest Fan of Fandom : <a href="https://github.com/NariTheMakoSh4rk"> @NariTheMakoSh4rk </a> #1 of Forsaken
 <br>
 <br>
 <br>
@@ -72,4 +72,22 @@ Pretty Github :
 Characters! : 
 <br>
 <br>
-<a href="https://github.com/NariTheMakoSh4rk"> @NariTheMakoSh4rk </a>:  is ponytowns Spade ! ݁ ˖Ი𐑼⋆
+<div align="left">
+<a href="https://github.com/NariTheMakoSh4rk"> @NariTheMakoSh4rk </a>: is ponytowns Spade (forsaken) ! ݁ ˖Ი𐑼⋆ <br>
+  <br>
+<a href="https://github.com/viimsey"> @viimsey </a>: is ponytowns ashswag (lifesteal smp) & mint choco cookie (cookie run) ! ݁ ˖Ი𐑼⋆ <br>
+  <br>
+<a href="https://github.com/pastellcloudyy"> @pastellcloudyy </a>: is ponytowns pretence (die of death) & shadow (no mercy: the gameshow) ! ݁ ˖Ი𐑼⋆ <br>
+  <br>
+<a href="https://github.com/star-employee"> @star-employee </a>: is ponytowns croissant cookie (cookie run) & harken (Die of Death) ! ݁ ˖Ი𐑼⋆ <br>
+  <br>
+<a href="https://github.com/D3V0TION"> @D3V0TION </a>:  is ponytowns Two time (forsaken) ! ݁ ˖Ი𐑼⋆ <br>
+  <br>
+<a href="https://github.com/R3QUI3MSINN3R"> @R3QUI3MSINN3R </a>: is ponytowns Pizza Guy (Pizza Game Beta) ! ݁ ˖Ი𐑼⋆ <br>
+  <br>
+<a href="https://github.com/theultimatekohamster"> @theultimatekohamster </a>: is ponytowns iTrapped (Roblox) ! ݁ ˖Ი𐑼⋆ <br>
+  <br>
+<a href="https://github.com/SONNELLINOENTHUSIAST"> @SONNELLINOENTHUSIAST </a>: is ponytowns Mafioso (Forsaken) ! ݁ ˖Ი𐑼⋆ <br>
+  <br>
+<a href="https://github.com/flowersan02"> @flowersan02 </a>: is ponytowns Elliot (WAAPP) ! ݁ ˖Ი𐑼⋆ <br>
+<br>
