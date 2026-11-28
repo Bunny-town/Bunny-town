@@ -1,10 +1,9 @@
 
 <div align="center">
 
-<a href="https://hits.sh/github.com/Bunny-town/"><img alt="Hits" src="https://hits.sh/github.com/Bunny-town.svg?style=plastic&label=(%CB%B5%E2%97%9D%20%E2%A9%8A%20%20%E2%97%9C%CB%B5%E3%83%9E&color=26204b&labelColor=341a4c"/></a>
+<img width="100" height="20" alt="tumblr_103e0dd44a3dbd3e291284788d02bdcb_27155f81_100" src="https://hits.sh/github.com/Bunny-town.svg?style=plastic&label=%E2%82%8D%E1%90%A2.%20%20%CC%AB.%E1%90%A2%E2%82%8E&color=ae8c5c&labelColor=c69867" />
 
-# <img width="150" height="20" alt="tumblr_3e7380548918081a1bbe69c1ec3b17e6_f39d75ad_250" src="https://cdn.phototourl.com/anon/2026-11-27-c01f9856-86d8-47db-99b9-c1d3d7242787.gif" />
-
+---
 $$\color{#55439c}{\text{Bunny-Town Nominations!}}$$
 
 <img width="100" height="60" alt="tumblr_20503b4a5829c83d46ed5cb869a394ec_56f3eb0f_100" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/c3ef2508-134f-4f8a-ad4d-5d53cf1cabba/dli7ajz-31672ab8-d165-4740-b049-4a31d65fb553.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9jM2VmMjUwOC0xMzRmLTRmOGEtYWQ0ZC01ZDUzY2YxY2FiYmEvZGxpN2Fqei0zMTY3MmFiOC1kMTY1LTQ3NDAtYjA0OS00YTMxZDY1ZmI1NTMucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.wP56hO6hqI8igxBnWPpnm6P77bUgnv_JuDQAeUeROmI" />
