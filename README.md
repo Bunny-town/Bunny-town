@@ -7,10 +7,9 @@
 
 <div align="center">
 
-<img width="574" height="25" alt="tumblr_49caaaa7ab93ec36130fe911d03ec27c_0c13a915_640" src="https://github.com/user-attachments/assets/ac813961-b804-46ff-88a3-0bd8f627d67f" />
-
 $$\color{#ab9276}{\text{Updated: 11/27/26}}$$
 
+<img width="574" height="25" alt="tumblr_49caaaa7ab93ec36130fe911d03ec27c_0c13a915_640" src="https://github.com/user-attachments/assets/ac813961-b804-46ff-88a3-0bd8f627d67f" />
 
 [Nominate here !](https://bunny-town.atabook.org/) &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; [Remove Here !](https://removenomination.straw.page)
 
