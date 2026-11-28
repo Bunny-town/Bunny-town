@@ -1,7 +1,7 @@
 
 <div align="center">
 
-<a href="https://hits.sh/github.com/tusugobrr/"><img alt="Hits" src="https://hits.sh/github.com/Bunny-town.svg?style=plastic&label=(%CB%B5%E2%97%9D%20%E2%A9%8A%20%20%E2%97%9C%CB%B5%E3%83%9E&color=26204b&labelColor=341a4c"/></a>
+<a href="https://hits.sh/github.com/Bunny-town/"><img alt="Hits" src="https://hits.sh/github.com/Bunny-town.svg?style=plastic&label=(%CB%B5%E2%97%9D%20%E2%A9%8A%20%20%E2%97%9C%CB%B5%E3%83%9E&color=26204b&labelColor=341a4c"/></a>
 
 # <img width="150" height="20" alt="tumblr_3e7380548918081a1bbe69c1ec3b17e6_f39d75ad_250" src="https://cdn.phototourl.com/anon/2026-11-27-c01f9856-86d8-47db-99b9-c1d3d7242787.gif" />
 
