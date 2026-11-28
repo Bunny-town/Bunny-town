@@ -48,7 +48,9 @@ If you change your username you can ask to change it in the ATA! please mention 
 <img width="101" height="57" alt="tumblr_d3754131fde414234974da002fa3524f_30a0943f_250" src="https://64.media.tumblr.com/4406836fbec99b93a8343e40684ddcb4/53abf51612bbb07a-6b/s100x200/60bb2986e1a3567d76da496d4aa55a6e8c70fb0d.png" />&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Categories&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;<img width="101" height="57" alt="tumblr_792493bed82148992e7deec9d402acbd_0af26abe_250" src="https://64.media.tumblr.com/c8e20dd7fade1cdf48b03b92143cd400/53abf51612bbb07a-48/s100x200/b7f662727a6241b91efd0d797a80841db8cf9b09.png" />
 
 </div>
-
+<br>
+<br>
+<br>
 <div align="left">
 Known Ponies (150+ Follows) : 
 <br>
@@ -63,7 +65,11 @@ Pretty Github :
 <br>
 <br>
 #1/Biggest Fan of Fandom : 
-
----
+<br>
+<br>
+<br>
 <div align="center">
 Characters! : 
+<br>
+<br>
+<a href="https://github.com/NariTheMakoSh4rk"> @NariTheMakoSh4rk </a>:  is ponytowns Spade ! ݁ ˖Ი𐑼⋆
