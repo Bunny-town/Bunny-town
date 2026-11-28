@@ -11,11 +11,6 @@
 
 $$\color{#ab9276}{\text{Updated: 11/27/26}}$$
 
-<img width="100" height="60" alt="tumblr_20503b4a5829c83d46ed5cb869a394ec_56f3eb0f_100" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/c3ef2508-134f-4f8a-ad4d-5d53cf1cabba/dli7ajz-31672ab8-d165-4740-b049-4a31d65fb553.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9jM2VmMjUwOC0xMzRmLTRmOGEtYWQ0ZC01ZDUzY2YxY2FiYmEvZGxpN2Fqei0zMTY3MmFiOC1kMTY1LTQ3NDAtYjA0OS00YTMxZDY1ZmI1NTMucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.wP56hO6hqI8igxBnWPpnm6P77bUgnv_JuDQAeUeROmI" />
-<img width="100" height="60" alt="tumblr_103e0dd44a3dbd3e291284788d02bdcb_27155f81_100" src="https://64.media.tumblr.com/4406836fbec99b93a8343e40684ddcb4/53abf51612bbb07a-6b/s100x200/60bb2986e1a3567d76da496d4aa55a6e8c70fb0d.png" />
-<img width="100" height="60" alt="tumblr_8b77d7197bc96fb9d1b992c466311f58_33f44667_100" src="https://64.media.tumblr.com/c8e20dd7fade1cdf48b03b92143cd400/53abf51612bbb07a-48/s100x200/b7f662727a6241b91efd0d797a80841db8cf9b09.png" />
-
-
 
 [Nominate here !](https://bunny-town.atabook.org/) &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; [Remove Here !](https://removenomination.straw.page)
 
@@ -49,7 +44,7 @@ $$\color{#cf4875}{\text{Text Text Text Text Text Text}}$$
 <div align="center">
 
 
-<img width="101" height="57" alt="tumblr_d3754131fde414234974da002fa3524f_30a0943f_250" src="https://github.com/user-attachments/assets/d70a2338-e9cb-4ef7-a975-56c3de1a225b" />&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; Characters! &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;<img width="101" height="57" alt="tumblr_792493bed82148992e7deec9d402acbd_0af26abe_250" src="https://github.com/user-attachments/assets/9c4e33b7-2cc9-4e07-8df2-d7f7affd3ce6" />
+<img width="101" height="57" alt="tumblr_d3754131fde414234974da002fa3524f_30a0943f_250" src="https://64.media.tumblr.com/4406836fbec99b93a8343e40684ddcb4/53abf51612bbb07a-6b/s100x200/60bb2986e1a3567d76da496d4aa55a6e8c70fb0d.png" />&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; Characters! &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;<img width="101" height="57" alt="tumblr_792493bed82148992e7deec9d402acbd_0af26abe_250" src="https://64.media.tumblr.com/c8e20dd7fade1cdf48b03b92143cd400/53abf51612bbb07a-48/s100x200/b7f662727a6241b91efd0d797a80841db8cf9b09.png" />
 
 </div>
 
